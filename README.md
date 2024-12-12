@@ -1,4 +1,2 @@
-   ㅤㅤㅤㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤ[![](https://fontmeme.com/permalink/241208/dad4a01d81c8f09c00f1296e37ce9a26.png)](https://rentry.co/crushing-cherries)
-  ㅤㅤㅤㅤㅤㅤㅤ     
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤ![](https://i.pinimg.com/736x/80/ca/9c/80ca9c5100cc6e7313ad086cc78d8729.jpg)
-
+ ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤ![](https://fontmeme.com/permalink/241212/268cac959fd3e52fadbbf4c9dbf2f2a2.png)
+  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  ![](https://i.pinimg.com/736x/96/a9/5c/96a95cc67104a137ed3a1ca5867e2f27.jpg)
